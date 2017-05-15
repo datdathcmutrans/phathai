@@ -1,6 +1,6 @@
 <h1>Tư vấn phá thai an toàn ở giới trẻ</h1>
 
-<div>Ngày nay, trường hợp nạo, phá thai chui ở tuổi vị thành niên rất phổ biến. Chỉ buộc phải lướt thông qua tư <a href="http://phongkhamdaidong.vn/tu-van-pha-thai-an-toan-online-qua-dien-thoai-mien-phi-44.html"><strong>vấn phá thai an toàn</strong></a> ở những phòng khám sản phụ khoa, không tương đối khó khi chúng ta bắt gặp nhiều &ldquo;bà mẹ&rdquo; tuổi teen, áo vẫn còn logo của trường ngồi xếp hàng để được chờ đến lượt &ldquo;giải quyết&rdquo;. cũng như không ít hiện tượng đang nạo, phá thai bị ngất xỉu,... thậm chí tử vong ngay trên bàn đẻ.
+<div>Ngày nay, trường hợp nạo, phá thai chui ở tuổi vị thành niên rất phổ biến. Chỉ buộc phải lướt thông qua <a href="http://phongkhamdaidong.vn/tu-van-pha-thai-an-toan-online-qua-dien-thoai-mien-phi-44.html"><strong>tư vấn phá thai an toàn</strong></a> ở những phòng khám sản phụ khoa, không tương đối khó khi chúng ta bắt gặp nhiều &ldquo;bà mẹ&rdquo; tuổi teen, áo vẫn còn logo của trường ngồi xếp hàng để được chờ đến lượt &ldquo;giải quyết&rdquo;. cũng như không ít hiện tượng đang nạo, phá thai bị ngất xỉu,... thậm chí tử vong ngay trên bàn đẻ.
 
 <p>&nbsp;</p>
 </div>
